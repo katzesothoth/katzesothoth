@@ -1,4 +1,4 @@
-# optiKatze  
+# KatzeSothoth  
 
 - **game player**
 
