@@ -1,6 +1,11 @@
 # KatzeSothoth  
 
-- **game player**
+- 🥺 
+    **homo sapiens**  
+- ~~🤔~~
+    **stop thinking**  
 
-- **stay alive** 
+
 ---
+
+so much for this
