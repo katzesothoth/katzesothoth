@@ -4,7 +4,8 @@
     **homo sapiens**  
 - ~~🤔~~
     **stop thinking**  
-
+- 👨‍🏭 
+    **work work**
 
 ---
 
