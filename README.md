@@ -2,11 +2,11 @@
 
 - 🥺 
     **homo sapiens**  
-- ~~🤔~~
+- 🤔
     **stop thinking**  
 - 👨‍🏭 
     **work work**
 
 ---
 
-so much for this
+so much for this  
