@@ -1,7 +1,5 @@
 # KatzeSothoth  
 
-- 🥺 
-    **homo sapiens**  
 - 🤔
     **stop thinking**  
 - 👨‍🏭 
